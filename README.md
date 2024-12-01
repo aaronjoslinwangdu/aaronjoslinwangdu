@@ -1,1 +1,1 @@
-Software engineer from Massachusetts
+Software engineer who loves to learn new things
